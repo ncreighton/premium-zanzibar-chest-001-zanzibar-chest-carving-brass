@@ -1,0 +1,2 @@
+# premium-zanzibar-chest-001-zanzibar-chest-carving-brass
+Ever spent hours piecing together Zanzibar chest carving motifs from scattered sources, only to end up with mismatched patterns and awkward brass stud placements?  This Design Hub eliminates guesswork by bundling authentic carving outlines, brass stud grids, and placement guides into one cohesive toolkit. Whether you're restoring an antique or buil
